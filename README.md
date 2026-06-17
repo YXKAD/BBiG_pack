@@ -2,8 +2,8 @@
 名蓝衣逸竹 Blue Bamboo in Grace  
 并无很高的观赏价值  
 类似的材质还有  
-黑山大叔的护眼大补丸基岩版移植来自于橘猫sama  
-XeKr的XeKr超护眼材质基岩版移植来自于OEOTYAN  
+黑山大叔的护眼大补丸 基岩版移植来自于橘猫sama  
+XeKr的XeKr超护眼材质 基岩版移植来自于OEOTYAN  
 墨与可的墨氏工艺  
 
 V7.1更新内容：
